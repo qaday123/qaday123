@@ -1,5 +1,5 @@
-I'm a d-ciple and highly d-voted to the almighty god of the letter 'd'
-no one can prove me otherwise
+I'm a d-ciple and highly d-voted to the almighty god of the letter 'd'\n
+no one can prove me otherwise\n
 all 'D' supporters are a spawn of hell and must submit themselves to be executed and sacrifice for the d-eed of our god
 
 d
